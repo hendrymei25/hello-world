@@ -1,2 +1,5 @@
 # hello-world
-just another repository
+
+hi gaees !
+
+apa kabar dunia, ,isih penak jaman ku toh !!!wkwkwkwkwk ckckckckck
